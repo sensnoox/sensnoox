@@ -2,7 +2,7 @@
 Heyy Selam Ben SnooX 👋 
 =======================
 
-Tasarımcıyım
+Tasarımcıyım - Üçerik Üreticisi
 ------
 
 ### Yeteneklerim
