@@ -1,4 +1,4 @@
-![MasterHead](https://media.discordapp.net/attachments/1341827080974897234/1350859977740390420/snooxbanner1.jpg?ex=67d845e4&is=67d6f464&hm=d5b671daed15a8d71bfa8586c270f63167a2543589d247329a18b3ec647adebf&=&format=webp&width=1794&height=709)
+
 Heyy Selam Ben SnooX 👋 
 =======================
 
